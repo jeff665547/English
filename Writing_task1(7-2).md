@@ -1,0 +1,4 @@
+The graph compares changes of the consumption of fish, chicken, beef, and lamb by individuals each week in a European country from 1979 to 2004.
+In general, the consumption of chicken saw a rising trend. On the other hand, the consumption of beef and lamb declined, and the figure for fish leveled off.
+Look at this information in more detail, in 1979, beef was the most popular meat, with nearly 200 grams. The consumption of lamb and chicken accounted for roughly 150 and 140 grams respectively while the figure for fish made up around 50 grams only.
+The figure for chicken overtaked that for lamb in 1980, and surpassed that for beef in 1989. After that, chicken became the most popular meat with roughly 250 grams in 2004. The figure for beef falled from nearly 220 grams to 100 grams from 1979 to 2004. There was also a drop of 100 grams in the consumption of lamb during this 25 years, and the figure for fish roughly remained stable during the same period.
