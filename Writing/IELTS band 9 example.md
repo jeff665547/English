@@ -1,0 +1,12 @@
+Some believe that children who fail in school will have limited futures. Do you agree or disagree?
+
+
+Poor academic performance drives parents to spare no expense on tutors and cram schools, fearing that low grades will close doors of opportunity for their children. They believe that without grades and degrees, their children cannot succeed later in life. I disagree with this view; those who fail academically in their youth can—and often do—achieve self-actualization and fulfillment in adulthood. 
+
+School is not the be-all, end-all predictor of success or ability. Rather, it is an institution that measures conformity to rigid standards and testing formats. Many brilliant “neurodiverse” people (those with conditions like ADHD, autism, and dyslexia) struggle academically because such inflexibility is at odds with their unique neurotypes—and yet, they absorb information quickly via self-paced online learning. A person does not need to be a high-achiever in their schooling years to become educated and competent by learning outside of the system. 
+
+In fact, it is not even necessary to be “educated” in the academic sense to excel and find meaning. There are numerous careers that do not require any such credentials. Artists, dancers, woodworkers, and chefs are all masters of their crafts, but these skills are neither measured nor rewarded in school. They live full, joyous lives all the same—because they have discovered the professions that truly matter to them.
+
+One might argue that those who are not so lucky as to find their path in such roles face limitations due to their lack of higher education credentials. This is true: certain professions like medicine and law are gatekept behind advanced degrees. However, there is no rule that individuals who become interested in such careers later in life cannot resume unfinished formal studies and enter their desired fields. They may even have more successful, happy careers because they pursued what they truly wanted in maturity instead of allowing parents and external influences to steer their courses in their youth.
+
+Regardless of what self-actualization looks like for an individual, there are many paths to that destination. Formal schooling is only one such path, and perhaps not even the best one for the journey they embark on.
