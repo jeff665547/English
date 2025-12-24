@@ -20,6 +20,7 @@
 * [Tourism and Travel](#tourism-and-travel) (10 essay questions)
 * [Transport](#Transport) (9 essay questions)
 * [Work](#Work) (19 essay questions)
+* [GT Letters](#gt-letters) (16 letter questions)
 
 
 # Art
@@ -1360,5 +1361,211 @@ What is your opinion?
 in order to provide security for their family.
 Do you think money is an important factor when choosing a job?
 What other factors should be considered?
+
+
+
+# GT Letters
+(16 letter questions)
+
+1. Letter of Instruction
+
+You have just spent a week with a friend on holiday. When you got
+home, you realised you had left your wallet there.
+
+Write a letter to your friend. In your letter:
+
+1. thank your friend for the holiday
+2. explain that you left your wallet in their house
+3. give them instructions of how to send it back to you
+
+
+
+2. Asking for a Letter of Reference
+
+You are applying for a job and need a letter of reference.
+
+Write a letter to a former teacher. In your letter:
+
+1. give details of the job
+2. explain why it is important to you
+3. suggest what information your teacher could put in the reference
+
+
+
+3. Letter of Advice
+
+A friend has written to you asking for advice about a problem at
+work. You have had a similar problem in the past.
+
+Write a reply to your friend. In your letter:
+
+1. tell your friend you understand the problem
+2. explain what happened to you in the past
+3. suggest possible solutions to the problem.
+
+
+
+4. Letter of Complaint
+
+Work is being done on the street where you live. The noise
+is disturbing you.
+
+Write a letter of complaint to your local council. In your letter:
+
+1. introduce yourself
+2. explain what the problem is
+3. suggest solutions to the problem
+
+
+
+5. Letter of Complaint
+
+You recently ordered something online. When the delivery came it
+was not complete.
+
+Write a letter to the company. In your letter:
+
+1. explain what you ordered and what was missing from your delivery
+2. explain the importance of this delivery
+3. ask for a replacement item to be sent
+
+
+
+6. Letter of Complaint
+
+You bought a TV a week ago but when you got home you discovered it
+did not work properly. You called customer service to report the
+problem but you have not yet received any help.
+
+Write a letter to the company and in your letter:
+
+1. introduce yourself
+2. explain the problem
+3. and state what action you would like from the company
+
+
+
+7. Letter of Application
+
+You saw an advert in the newspaper asking for volunteers to help
+run a charity event.
+
+Write a letter of application to the organisers. In your letter:
+
+1. explain why you are interested in helping
+2. give details suitable past experience
+3. suggest ways you might help with the event
+
+
+
+8. Letter of Request
+
+You need to take leave from your work of over one month for
+personal reasons.
+
+Write a letter to your boss. In your letter:
+
+1. explain the reason for the leave and the length of leave you need
+2. explain how you will keep up-to-date while you're away
+3. suggest how your work could be covered while you are away
+
+
+
+9. Letter of Resignation
+
+You have decided to resign from your work in order to try a new
+field.
+
+Write a letter of resignation to your boss. In your letter:
+
+1. tell your boss of your decision and explain why you are leaving
+2. explain what you have learnt from your current job and how you feel about leaving
+3. ask for a letter of reference
+
+
+
+10. Letter of Arrangement
+
+You have organised to go on holiday with your friend. However,
+you must change your plans.
+
+Write a letter to your friend. In your letter:
+
+1. tell them how much you are looking forward to the holiday
+2. explain why you must change your plans
+3. suggest alternative arrangements
+
+
+
+11. Letter of Acceptance
+
+A friend has offered you some work in his company. You are
+currently employed and not able to start for three months.
+
+Write a reply to your friend. In your letter:
+
+1. give details of what you know about his company
+2. explain your current situation
+3. give your answer to the offer and explain why
+
+
+
+12. Letter of Invitation
+
+Write a letter to your friend who lives in another country and in
+your letter:
+
+1. Invite him/her to a public event in your country.
+2. Describe the public event.
+3. Explain about other plans you have for your friend when he/she will visit.
+
+
+
+13. Letter of Invitation
+
+Last month you had an overseas holiday with some friends where
+you stayed at their house. They have just sent you some holiday
+photos.
+
+Write a letter to your friends. In your letter:
+
+1. thank them for the holiday and the photos
+2. explain why you didn't write earlier
+3. invite them to come and stay with you
+
+
+
+14. Letter of Apology (Formal)
+
+Write a letter to your boss apologising for the recent meeting you
+missed at work.
+
+1. Apologise for missing the meeting.
+2. Explain what happened.
+3. Say what you will do to compensate.
+
+
+
+15. Letter of Apology (Informal)
+
+Write a letter to a friend. You have borrowed something from your
+friend and it got damaged.
+
+1. Apologize for damaging the product
+2. Explain what happened
+3. Say how are you going to fix the issue
+
+
+
+16. Letter of Amendment
+
+You recently read an article in newspaper about someone you know personally.
+You found some information is wrong. Write a letter to editor to inform him about
+it. Use following points:
+
+1. What is the article about?
+2. What is the error?
+3. What you expect an editor to do?
+
 
 
