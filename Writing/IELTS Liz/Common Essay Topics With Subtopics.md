@@ -25,7 +25,7 @@ Common Essay Topics with Subtopics
 * Crime & Punishment
 - [ ] prisons vs rehabilitation
 - [ ] capital punishment vs other types of punishment
-- [ ] criminals - [ ] what makes a criminal
+- [ ] criminals - what makes a criminal
 - [ ] major vs minor crime
 - [ ] crime and technology
 - [ ] teenagers and crime
