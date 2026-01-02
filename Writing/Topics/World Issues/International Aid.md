@@ -1,4 +1,5 @@
 International Aid (from Rich Countries to Poor Countries)
+Some people think that governments should focus only on their own citizens and should not provide assistance to people in other countries. To what extent do you agree or disagree?
 
 AXEXES (Assertion, eXample, Explanation, eXample, Explanation, Significance) model
 * 天經地義的道德責任 
