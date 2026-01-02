@@ -78,7 +78,7 @@ death of local communities. To what extent do you agree or disagree?
 4. Companies should provide sports and social facilities for local
 communities. To what extent do you agree? (Reported 2017, 2021)
 
-5. If the product is good and meets consumer needs than advertising is
+5. If the product is good and meets consumer needs then advertising is
 unnecessary. To what extent do you agree? (2023)
 
 6. Large businesses have big budgets for marketing and promotion and as
@@ -141,7 +141,6 @@ for sales positions? (2020)
 well as irresponsible use of credit cards. Banks should not issue credit
 cards unless they are completely sure of an individual's ability to pay
 back their debits.
-
 To what extent do you agree with this? (this question is quite common)
 
 18. Some people believe that the higher a product is priced, the more likely
