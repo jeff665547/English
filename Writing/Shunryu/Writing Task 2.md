@@ -27,6 +27,17 @@ IELTS Writing Task 2 全攻略
         - Significance (S): revealing how or why this paragraph supports your paper’s overall thesis.
         - These elements (A, X, E, S) may sometimes be rearranged or repeated. (i.e. AEXEXS, AEEXS, AXEXE).
         - For more information and the roles of each element (A, X, E, S), please refer to the appended table. ![alt text](image-1.png)
+    - 主要論點(assertion, main point)之間的關係盡量是層層遞進發展才能寫的深入(縱向論點)，如果主要論點彼此間沒有層層遞進的關係(橫向論點)，那就較無法寫的深入，雖仍可以保分但較難拿高分。
+        - 個人 → 他人/家庭 → 社會
+        - 家庭 → 學校 → 社會氛圍
+        - 辦事點 → 機關單位 → 行政系統
+        - 是什麼 → 為什麼 → 怎麼辦
+        - 舉例：題目是社交技巧和個人能力在應聘人的時候同等重要，是否同意？
+            - 橫向論點：從團結、效率、公司盈利層面來看
+            - 縱向論點：從團隊 → 項目 → 企業的運營和成長
+        - 舉例：教小孩成為社會中重要的一員是家長的事還是學校的事，討論兩邊並給意見？
+            - 橫向論點：都重要，從家長(ABC/好壞)、學校(ABC/好壞)來看, ABC彼此是不太相關的論點
+            - 縱向論點：都重要，從只由家長教育的影響(對小孩個人 → 對他人 → 將來社會)、只由學校教育的影響(對小孩個人 → 對他人 → 將來社會)來看
 * Conclusion: 
     - 簡單的 conclusion，用兩至三句去總結全篇文章。
     - 切記這裡我們只不過是總結剛才所講的那兩三個 main points。
