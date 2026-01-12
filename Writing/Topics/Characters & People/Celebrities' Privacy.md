@@ -29,4 +29,8 @@ When stars attempt to distance themselves from such excessive attention, they ma
 * Unprofessional & unethical
 Journalists often devote substantial resources to uncovering the private lives of celebrities, including changes in their physical appearance and dating histories.
 Such practices are unprofessional and unethical, as these private matters should not be subject to constant public scrutiny.
-Instead, more attention should be paid to their professional achievements and creative works since their reputations ought to be built on their talents and contributions rather than scandals.
+Instead, more attention should be paid to their professional achievements and creative works since their reputations ought to be built on their talents and contributions rather than gossip and scandals.
+
+
+====================================================================================
+Full Essay
