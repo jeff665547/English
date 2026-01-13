@@ -7,8 +7,8 @@ Intense media intrusion into celebrities' private lives and relationships result
 
 * Psychologically harmful
 Publicizing the private lives of celebrities is detrimental to their mental well-being.
-Nowadays, the details of some famous public figures are posted on social media platforms. 
-This could pose a serious threat to their mental health because they might frequently get tracked, snapped, and even harassed by paparazzi, forcing them to live under pressure even during their leisure time. 
+Nowadays, the daily routines of some famous public figures are posted on social media platforms. 
+This exposure means that they may be frequently tracked, photographed, and even harassed by paparazzi, forcing them to live under constant pressure even in their leisure time.
 If left uncontrolled, it would drive them crazy ultimately and lead to negative psychological consequences, such as sleep deprivation, depression, or even suicide, taking a serious toll on their medical expenditure or even causing death.
 
 * Interefere with their relationships
@@ -34,3 +34,6 @@ Instead, more attention should be paid to their professional achievements and cr
 
 ====================================================================================
 Full Essay
+In some countries, celebrities complain about the way the media publicizes their private lives. Some people say that they should accept it as part of their fame. Do you agree or disagree?
+
+In some nations, public figures argue that their privacy is publicized by the media, while others claim that they should take it as part of their fame. In my opinion, the private lives of celebrities should not be exposed, as excessive media intursion is unethical and threatens their personal safety.
