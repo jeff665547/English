@@ -24,7 +24,7 @@ Moreover, revealing the privacy of public figures is inappropriate and would pos
 * Pose a threat to celebrities' safety
 Although the prevalence of the Internet and social media has made it easier for fans to follow their idols, it has also exposed every aspect of their lives to the public. 
 As news feeds go viral on social platforms, some irrational followers deliberately monitor celebrities’ whereabouts to seek close and face-to-face contact. 
-When stars attempt to distance themselves from such excessive attention, they may face harassment or even physical attacks, thereby severely disrupting their private lives and threatening their personal safety.
+When stars attempt to distance themselves from such excessive attention, they may face harassment or even physical attacks, thereby severely disrupting their schedule and threatening their personal safety.
 
 * Unprofessional & unethical
 Journalists often devote substantial resources to uncovering the private lives of celebrities, including changes in their physical appearance and dating histories.
