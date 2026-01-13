@@ -1,9 +1,9 @@
 In some countries, celebrities complain about the way the media publicizes their private lives. Some people say that they should accept it as part of their fame. Do you agree or disagree?
 
-In some nations, some public figures argue that their private information is publicized by the media, while others claim that they should take it as part of their fame. In my opinion, the privacy of celebrities should not be publicized by the media since excessive media intrusion is unethical, psychologically harmful, and poses serious risks to personal safety.
+In some nations, some public figures argue that their private information is publicized by the media, while others claim that they should take it as part of their fame. In my opinion, the privacy of celebrities should not be exposed by the media since excessive media intrusion is unethical, psychologically harmful, and poses serious risks to personal safety.
 
 Individuals
-Intense media intrusion into celebrities' private affairs and relationships results in negative personal impacts.
+Intense media intrusion into celebrities' private lives and relationships results in negative personal consequences.
 
 * Psychologically harmful
 Publicizing the private lives of celebrities is detrimental to their mental well-being.
@@ -19,7 +19,7 @@ Such disclosure is irresponsible and unreasonable, often violating privacy, disr
 
 
 Fans & Society
-Moreover, uncovering the privacy of public figures is inappropriate and would pose a serious threat to their safety.
+Moreover, revealing the privacy of public figures is inappropriate and would pose a serious threat to their safety.
 
 * Pose a threat to celebrities' safety
 Although the prevalence of the Internet and social media has made it easier for fans to follow their idols, it has also exposed every aspect of their lives to the public. 
