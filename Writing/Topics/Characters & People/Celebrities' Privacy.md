@@ -41,7 +41,7 @@ In conclusion, I believe that public figures should not be tracked at all times,
 Full Essay
 In some countries, celebrities complain about the way the media publicizes their private lives. Some people say that they should accept it as part of their fame. Do you agree or disagree?
 
-In some nations, public figures argue that their private lives are invaded by the media, while others claim that this is the price of fame. In my opinion, the privacy of celebrities should not be exposed by the media, as excessive media intrusion is inappropriate, unethical, and poses serious risks to their mental health and safety.
+In some nations, public figures argue that their private lives are invaded by the media, while others claim that this is the price of fame. In my opinion, the privacy of celebrities should not be exposed, as excessive media intrusion is inappropriate, unethical, and poses serious risks to their mental health and safety.
 
 Publicizing the private lives of public figures seriously threatens their mental well-being and relationships. Nowadays, the daily routines of stars are posted on social media platforms. Behind such exposure lies the reality that they are frequently tracked, harassed, or even photographed by paparazzi, forcing them to live under pressure even in their leisure time. If left uncontrolled, this can cause severe mental distress, resulting in sleep deprivation, depression, or even suicide. In addition, persistent media scrutiny often extends beyond celebrities to their personal relationships. The press frequently reports on their family members and close friends. Such disclosure is irresponsible, invading the privacy of loved ones and straining personal bonds.
 
