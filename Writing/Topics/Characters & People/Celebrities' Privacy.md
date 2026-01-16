@@ -1,6 +1,6 @@
 In some countries, celebrities complain about the way the media publicizes their private lives. Some people say that they should accept it as part of their fame. Do you agree or disagree?
 
-In some nations, some public figures argue that their private information is publicized by the media, while others claim that they should take it as part of their fame. In my opinion, the privacy of celebrities should not be exposed by the media since excessive media intrusion is unethical, psychologically harmful, and poses serious risks to personal safety.
+In some nations, some public figures argue that their private information is publicized by the media, while others claim that they should take it as part of their fame. In my opinion, the private lives of celebrities should not be exposed since excessive media intrusion is unethical, psychologically harmful, and poses serious risks to personal safety.
 
 Individuals
 Intense media intrusion into celebrities' private lives and relationships results in negative personal consequences.
@@ -20,7 +20,7 @@ Such disclosure is irresponsible and unreasonable, often infringing on privacy, 
 
 
 Fans & Society
-Moreover, revealing the privacy of public figures is inappropriate and would pose a serious threat to their personal safety.
+Moreover, revealing the personal information of public figures is inappropriate and would pose a serious threat to their personal safety.
 
 * Pose a threat to celebrities' personal safety
 Although the prevalence of the Internet and social media has made it easier for fans to follow their idols, every aspect of their lives has also been exposed to the public.
@@ -41,11 +41,11 @@ In conclusion, I believe that public figures should not be tracked at all times,
 Full Essay
 In some countries, celebrities complain about the way the media publicizes their private lives. Some people say that they should accept it as part of their fame. Do you agree or disagree?
 
-In some nations, public figures argue that their private lives are invaded by the media, while others claim that this is the price of fame. In my opinion, the privacy of celebrities should not be exposed, as excessive media intrusion is inappropriate, unethical, and poses serious risks to their mental health and safety.
+In some nations, public figures argue that their private lives are exposed by the media, while others claim that this is the price of fame. In my opinion, the privacy of celebrities should not be invaded, as excessive media intrusion is inappropriate, unethical, and poses serious risks to their mental health and safety.
 
-Publicizing the private lives of public figures seriously threatens their mental well-being and relationships. Nowadays, the daily routines of stars are posted on social media platforms. Behind such exposure lies the reality that they are frequently tracked, harassed, or even photographed by paparazzi, forcing them to live under pressure even in their leisure time. If left uncontrolled, this would cause severe mental distress, resulting in sleep deprivation, depression, or even suicide. In addition, persistent media scrutiny often extends beyond celebrities to their personal relationships. It is not uncommon for the press to report on their family members and close friends. Such disclosure is irresponsible, encroaching on the privacy of loved ones and straining personal bonds.
+Publicizing the private lives of public figures seriously threatens their mental well-being and relationships. Nowadays, the daily routines of stars are posted on social media platforms. Behind such exposure lies the reality that they are frequently tracked, photographed, or even harassed by paparazzi, forcing them to live under pressure even in their leisure time. If left uncontrolled, this would cause severe mental distress, resulting in sleep deprivation, depression, or even suicide. In addition, persistent media scrutiny often extends beyond celebrities themselves to their personal relationships. It is not uncommon for the press to report on their family members and close friends. Such disclosure is irresponsible, encroaching on the privacy of loved ones and straining personal bonds.
 
-Moreover, leaking personal information is unethical and poses a threat to their personal safety. Although the prevalence of the Internet and social media has made it easier for fans to follow their idols, it also exposes every aspect of their lives. As newsfeeds go viral, irrational followers may monitor their whereabouts to seek physical contact. When stars attempt to distance themselves, they may face harassment or attacks. Furthermore, it is ethically problematic that journalists devote resources to uncovering details like financial assets or dating histories. Instead, attention should be paid to their professional achievements since their reputations should be built on talent, not gossip.
+Moreover, leaking personal information of celebrities is unethical and poses a threat to their personal safety. Although the prevalence of the Internet and social media has made it easier for fans to follow their idols, it has also exposed every aspect of their lives. As newsfeeds go viral, irrational followers may monitor their whereabouts to seek physical contact. When stars attempt to distance themselves, they may face harassment or attacks. Furthermore, it is ethically problematic that the media devote resources to uncovering their details such as financial assets or dating histories. Instead, attention should be paid to their professional achievements since their reputations should be built on talent, not gossip.
 
 In conclusion, public figures should not be tracked at all times, nor should their private lives define their professional reputations. Not only does such exposure harm their mental well-being and relationships, but it also ultimately threatens their safety and career longevity.
 
