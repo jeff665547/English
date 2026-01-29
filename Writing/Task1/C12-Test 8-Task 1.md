@@ -5,3 +5,5 @@ In your letter
 • suggest how the reception area could be improved 
 Write at least 150 words. 
 You do NOT need to write any addresses. Begin your letter as follows: Dear ....................,
+
+
