@@ -36,4 +36,4 @@ Correction:
 * Since lifeguards are always on duty to handle emergencies when they arise (too formal)
 => there are always lifeguards on duty
 * Since we've both been wanting to do this, I think this is a great chance to finally cross it off our bucket list.
-* I'd love it if you came along. Let me know what you think! Take care and write back soon.
+* I'd love it if you joined me. Let me know what you think! Take care and write back soon.
