@@ -14,6 +14,7 @@ Best wishes,
 
 Jeff
 
+[Words: 186]
 
 Correction:
 * holidaymakers (a bit stiff) => people.
