@@ -1,10 +1,10 @@
 Dear Mr. Lee, 
 
-I am writing to express my concern regarding the inadequate outdoor lighting at the entrance to our company. I hope this issue can be addressed as soon as possible. 
+I am writing to express my concern regarding the inadequate outdoor lighting at the entrance to our company. I hope this issue can be addressed promptly. 
 
 Although an LED lighting system is installed near the main gate, the front walkway remains insufficiently illuminated. Therefore, visibility is particularly poor on foggy nights, posing a significant safety risk to employees and road users. Without sufficient lighting, individuals walking through this area are more likely to trip on the steps or fail to be noticed by approaching drivers. 
 
-To solve this problem, I would recommend contacting the relevant maintenance or facilities department to inspect the exterior lighting system. Some of the LED units may be malfunctioning and require replacement. They should also evaluate whether a full upgrade is required to ensure adequate lighting along the walkway.
+To solve this problem, I would recommend contacting the relevant maintenance or facilities department to inspect the current lighting system. Some of the LED units seem to be malfunctioning and require replacement. They should also evaluate whether a full upgrade is required to ensure adequate lighting along the walkway.
 
 If the outdoor lighting were improved, employees would have better visibility when navigating the steps, reducing the risk of accidents. Additionally, drivers would be able to identify pedestrians from a greater distance and slow down accordingly at night. 
 
@@ -13,6 +13,8 @@ As this issue affects the safety of all staff members, your prompt assistance in
 Yours sincerely, 
 
 Jeff Ho
+
+
 
 * You work at this company, so you should invent a name for your manager. => 知道對方姓名的formal letter. => Yours sincerely,
 * lodge a complaint about (提起正式的法律訴訟，富有嚴重的警告意味) => bring an issue regarding
