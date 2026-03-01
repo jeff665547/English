@@ -15,8 +15,7 @@ Yours sincerely,
 Jeff Ho
 
 
-
-
+* facilities => 2 個以上的設施
 * You work at this company, so you should invent a name for your manager. => 知道對方姓名的formal letter. => Yours sincerely,
 * lodge a complaint about (提起正式的法律訴訟，富有嚴重的警告意味) => bring an issue regarding
 * the LED illumination system (太技術性了) => the outdoor lighting system, the LED lighting system
