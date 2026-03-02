@@ -1,14 +1,14 @@
 Dear Mr. Lee,
 
-I am writing to express my concern regarding the inadequate outdoor lighting and damaged stairway at the entrance to our company. I hope these issues can be addressed promptly.
+I am writing to express my concern regarding the inadequate lighting and damaged stairway at the entrance to our company. I hope these issues can be addressed promptly.
 
-Whenever I walk through the courtyard outside our building, I find this area hazardous due to insufficient illumination and uneven paving. Poor visibility increases the risk of tripping on the deteriorating steps, posing a significant threat to the safety of all employees. The dim outdoor lighting also negatively influences our company's professional image.
+Whenever I walk through the courtyard outside our building, I find this area hazardous due to the insufficient illumination and uneven paving. Poor visibility increases the likelihood of tripping on deteriorating steps, posing a significant threat to the safety of all employees. The dim lighting also negatively impacts our company's public image.
 
-To resolve these issues, I recommend contacting the relevant maintenance or facilities team to inspect the current exterior lighting system. Some of the LED units seem to be malfunctioning and require replacement. The team should also evaluate whether a full upgrade is needed to ensure sufficient illumination. Additionally, the front stairs need to be repaired so that staff can navigate this area more safely.
+To address these issues, I recommend contacting the relevant maintenance and facilities team to inspect the current exterior lighting system. Some of the LED units seem to be malfunctioning and require replacement. The team should also evaluate whether a full upgrade is needed to ensure sufficient illumination. Additionally, the front stairs should be repaired to enhance safety.
 
-If these issues were addressed, employees would benefit from better visibility, reducing the risk of accidents. Beyond safety, well-maintained outdoor lighting would also present a more professional image of our workplace.
+If these issues were resolved, employees could benefit from better visibility and navigate this area more safely, greatly reducing the risk of accidents. Beyond safety, well-maintained outdoor lighting could also present a more professional image of our company to clients and visitors.
 
-As these improvements affect the safety of all staff members, your prompt assistance is highly appreciated.
+As these improvements affect the safety of all staff members, your prompt assistance in this matter is highly appreciated.
 
 Yours sincerely,
 
