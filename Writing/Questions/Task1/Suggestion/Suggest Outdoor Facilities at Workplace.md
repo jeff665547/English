@@ -4,7 +4,7 @@ I am writing to express my concern regarding the inadequate lighting and damaged
 
 Whenever I walk through the courtyard outside our building at night, I find this area hazardous due to insufficient illumination and uneven entrance steps. Poor visibility increases the likelihood of tripping on the deteriorating steps, posing a significant safety threat to employees. Furthermore, the poorly illuminated entrance may negatively impact our company's public image.
 
-To address these issues, I recommend having the relevant facilities team inspect the current outdoor lighting system. Some of the LED units seem to be malfunctioning and require replacement. The team should also evaluate whether a full lighting upgrade is necessary. Additionally, the broken entrance stairs must be repaired to ensure safety.
+To address these issues, I recommend having the relevant facilities team inspect the current outdoor lighting system. Some of the LED units seem to be malfunctioning and require replacement. The team should also evaluate whether a full lighting upgrade is necessary. Additionally, the broken entrance steps must be repaired to ensure safety.
 
 If these issues were resolved, employees would benefit from better visibility, enabling them to navigate this area more safely and reducing accidents. Beyond safety, well-maintained outdoor lighting would also create a more professional exterior, fostering a greater sense of pride among staff and boosting overall morale.
 
@@ -23,8 +23,8 @@ Jeff Ho
 * "For unknown reasons" 此為固定用法，在某些特殊語境下甚至可以省略
 * "on foggy nights" 此為固定用法，nights複數表示一般一再重複的情況
 * individuals who walked through 時態錯誤 => 燈泡直到寫信的當下還是壞的，陳述現在事實 => 現在式
-=> anyone walking through this area is more likely to trip on the stairs. 在階梯上面絆倒
-* "trip on the steps" (steps 為戶外的台階, stairs 為室內的樓梯)
+=> anyone walking through this area is more likely to trip on the steps. 在階梯上面絆倒
+* "trip on the steps" (steps 為戶外的台階(連接平台), stairs 為室內的樓梯(連接樓層))
 * "oncoming cars" 迎面而來的車輛 / oncoming traffic
 * "I hope you could contact ..." (建議語氣較弱)，當寫到實際應該要怎麼做時語氣可以明確一點，如：I would suggest/recommend + Ving => I would recommend contacting ... 或是 Could we contact ...? 問句結尾。
 * "contact the relevant maintenance or support teams" 知會聯絡相關支援維修部門 or "call an electrician" 打電話叫電工來修繕
