@@ -6,7 +6,7 @@ Whenever I walk through the courtyard outside our building at night, I find this
 
 To address these issues, I recommend having the relevant facilities team inspect the current outdoor lighting system. Some of the LED units seem to be malfunctioning and require replacement. The team should also evaluate whether a full lighting upgrade is necessary. Additionally, the broken entrance steps must be repaired to ensure safety.
 
-If these issues were resolved, employees would benefit from better visibility, enabling them to navigate this area more safely and reducing accidents. Beyond safety, well-maintained outdoor lighting would also create a more professional exterior, fostering a greater sense of pride among staff and boosting overall morale.
+If these issues were resolved, employees would benefit from better visibility, enabling them to navigate this area more safely and reducing accidents. Beyond safety, well-maintained outdoor lighting would also create a more professional appearance, fostering a greater sense of pride among staff and boosting overall morale.
 
 As these improvements would benefit all staff members, your prompt assistance in this matter would be highly appreciated.
 
