@@ -2,11 +2,11 @@ Dear Mr. Lee,
 
 I am writing to express my concern regarding the inadequate lighting and damaged stairway at the entrance to our company. I hope these issues can be addressed promptly.
 
-Whenever I walk through the courtyard outside our building at night, I find this area hazardous due to insufficient illumination and uneven stairs. Poor visibility increases the likelihood of tripping on deteriorating steps, posing a significant safety threat. The dim lighting also negatively impacts our company's public image.
+Whenever I walk through the courtyard outside our building at night, I find this area hazardous due to insufficient illumination and uneven stairs. Poor visibility increases the likelihood of tripping on deteriorating steps, posing a significant safety threat. Furthermore, the dim lighting negatively impacts our company's public image.
 
-To address these issues, I recommend requesting the relevant maintenance or facilities team to inspect the current outdoor lighting system. Some of the LED units seem to be malfunctioning and require replacement. The team should also evaluate whether a full upgrade is needed to ensure sufficient illumination. Additionally, the front stairs should be repaired to enhance safety.
+To address these issues, I recommend having the relevant maintenance or facilities team inspect the current outdoor lighting system. Some of the LED units seem to be malfunctioning and require replacement. The team should also evaluate whether a full lighting upgrade is necessary. Additionally, the front stairs must be repaired to ensure safety.
 
-If these issues were resolved, employees would benefit from better visibility, enabling them to navigate this area more safely. Beyond safety, well-maintained outdoor lighting would create a more professional image of our company, making employees more engaged at work.
+If these issues were resolved, employees would benefit from better visibility, enabling them to navigate this area more safely. Beyond safety, well-maintained outdoor lighting would create a more professional exterior, fostering a greater sense of pride among staff and boosting overall morale.
 
 As these improvements affect the safety of all staff members, your prompt assistance in this matter would be highly appreciated.
 
