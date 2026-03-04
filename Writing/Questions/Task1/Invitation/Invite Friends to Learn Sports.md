@@ -8,7 +8,7 @@ The lessons will be held in Kenting National Park, which is famous for its sandy
 
 I still remember you mentioning once that you'd love to try surfing because it looks so cool. Since we've both been wanting to do this, I think it's a good chance to cross it off our bucket list.
 
-I'd love it if you joined me. So, let me know what you think. Take care and write back soon.
+I'd love it if you joined me. Let me know what you think. Take care and write back soon.
 
 Best wishes,
 
