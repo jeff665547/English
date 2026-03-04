@@ -2,7 +2,7 @@ Dear Paul,
 
 How's everything going? I just wanted to let you know that I'm planning to take up surfing next month. I hope you can join me, so we can take the course together.
 
-Every time I go to the beach, I see lots of people surfing in the ocean and enjoying the adrenaline rush. This makes me want to give it a try. Last week, I saw an advertisement for surfing lessons, which really caught my eye, so I wanted to invite you to take the course with me.
+Every time I go to the beach, I see lots of people surfing in the ocean and enjoying an adrenaline rush. This makes me want to give it a try. Last week, I saw an advertisement for surfing lessons, which really caught my eye, so I wanted to invite you to take the course with me.
 
 The lessons will be held in Kenting National Park, which is famous for its sandy beaches, blue sea, and plenty of sunshine. Plus, there are always lifeguards on duty, so we don't have to worry about our safety while learning.
 
